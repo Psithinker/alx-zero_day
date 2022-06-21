@@ -1,1 +1,1 @@
-My GIT second chance
+My coding life
